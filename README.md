@@ -1,1 +1,1 @@
-https://64.media.tumblr.com/828719bf87ad8f1e9cfe6f4292b556f5/835396812ab98429-49/s500x750/477692efe4d50ea50f680e64bce8e6b183f6e32a.gifv
+![tumblr_828719bf87ad8f1e9cfe6f4292b556f5_477692ef_500](https://github.com/user-attachments/assets/4c8756c8-92ae-4589-9779-f9ca13d8bf4c)
