@@ -1,1 +1,1 @@
-# dazejax
+https://64.media.tumblr.com/828719bf87ad8f1e9cfe6f4292b556f5/835396812ab98429-49/s500x750/477692efe4d50ea50f680e64bce8e6b183f6e32a.gifv
